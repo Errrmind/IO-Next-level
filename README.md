@@ -1,6 +1,4 @@
-[invalid URL removed]  Good cracking forum.
 
-[invalid URL removed]  Forum with advertisements.
 
 Prologic.su 
 Helpful Russian hacking forums.
