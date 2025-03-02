@@ -1,146 +1,101 @@
+<a href="[invalid URL removed]">Nulledbb.com</a> - Good cracking forum.
 
+<a href="[invalid URL removed]">Leakedbb.com</a> - NSFW forum.
 
-Prologic.su 
-Helpful Russian hacking forums.
+<a href="[invalid URL removed]">Fssquad.com</a> - Forum with advertisements.
 
-Cracking.org  
-Signature, marketplace, no advertising in threads.
+<a href="Prologic.su">Prologic.su</a> - Helpful Russian hacking forums.
 
-Reversing.center 
-Hacking and programming forum.
+<a href="Cracking.org">Cracking.org</a> - Signature, marketplace, no advertising in threads.
 
-Mmolearn.com  
-Gmail required for signup.
+<a href="Reversing.center">Reversing.center</a> - Hacking and programming forum.
 
-Bdfclub.com 
-Hacking forum with services.
+<a href="Mmolearn.com">Mmolearn.com</a> - Gmail required for signup.
 
-Rootsploit.org 
-Blackhat learning forum.
+<a href="Bdfclub.com">Bdfclub.com</a> - Hacking forum with services.
 
-Hacksnation.com  Good hacking forum, marketplace.
+<a href="Rootsploit.org">Rootsploit.org</a> - Blackhat learning forum.
 
+<a href="Hacksnation.com">Hacksnation.com</a> - Good hacking forum, marketplace.
 
-Crackia.com  
-Average cracking forum, leaks, marketplace.
+<a href="Crackia.com">Crackia.com</a> - Average cracking forum, leaks, marketplace.
 
-Darkpro.net 
-High-level hacking forum.
+<a href="Darkpro.net">Darkpro.net</a> - High-level hacking forum.
 
-Demonforums.net 
-Good forum, marketplace, better with upgrade.
+<a href="Demonforums.net">Demonforums.net</a> - Good forum, marketplace, better with upgrade.
 
-Hacksnation.com  
-Good hacking forum, marketplace.
+<a href="Hacksnation.com">Hacksnation.com</a> - Good hacking forum, marketplace.
 
-Xreactor.org  
-Good leaks, okay marketplace.
+<a href="Xreactor.org">Xreactor.org</a> - Good leaks, okay marketplace.
 
-Blackhatprotools.info  Hacking website.
+<a href="Blackhatprotools.info">Blackhatprotools.info</a> - Hacking website.
 
-Crackinglab.team
-White/black hacking learning.
+<a href="Crackinglab.team">Crackinglab.team</a> - White/black hacking learning.
 
-Mpgh.net 
-Hacking forum, good marketplace.
+<a href="Mpgh.net">Mpgh.net</a> - Hacking forum, good marketplace.
 
-Leakbase.io  
-Lots of leaks.
+<a href="Leakbase.io">Leakbase.io</a> - Lots of leaks.
 
-High-minded.cx  
-German customer forum, AI translation help.
+<a href="High-minded.cx">High-minded.cx</a> - German customer forum, AI translation help.
 
-Validmarket.io  
-Higher-level hacking forum, good marketplace.
+<a href="Validmarket.io">Validmarket.io</a> - Higher-level hacking forum, good marketplace.
 
-Leakzone.net  
-Signature, marketplace, advertising allowed.
+<a href="Leakzone.net">Leakzone.net</a> - Signature, marketplace, advertising allowed.
 
-Hbh.sh  
-Top-tier English hacking forum.
+<a href="Hbh.sh">Hbh.sh</a> - Top-tier English hacking forum.
 
-Exploit.in  
-Top-tier Russian hacking forum.
+<a href="Exploit.in">Exploit.in</a> - Top-tier Russian hacking forum.
 
-Go4expert.com  
-Hacking learning forum.
+<a href="Go4expert.com">Go4expert.com</a> - Hacking learning forum.
 
-Myiptvforum.com  L
-eaks, IPTV sellers.
+<a href="Myiptvforum.com">Myiptvforum.com</a> - Leaks, IPTV sellers.
 
-Babia.to  
-Below average forum, okay marketplace.
+<a href="Babia.to">Babia.to</a> - Below average forum, okay marketplace.
 
-Youhack.co  
-Good for beginners.
+<a href="Youhack.co">Youhack.co</a> - Good for beginners.
 
-Bdfclub.com  
-Hacking forum with services.
+<a href="Bdfclub.com">Bdfclub.com</a> - Hacking forum with services.
 
-Nohide.space  
-Good forum with many leaks.
+<a href="Nohide.space">Nohide.space</a> - Good forum with many leaks.
 
-Mipped.com  
-Hacking forum, blog-like.
+<a href="Mipped.com">Mipped.com</a> - Hacking forum, blog-like.
 
-Crackingx.com  
-Good marketplace, profile comments.
+<a href="Crackingx.com">Crackingx.com</a> - Good marketplace, profile comments.
 
-Crackingsoul.com  
-Good cracking forum, okay marketplace.
+<a href="Crackingsoul.com">Crackingsoul.com</a> - Good cracking forum, okay marketplace.
 
-Xss.is  
-Amazing Russian hacking forum.
+<a href="Xss.is">Xss.is</a> - Amazing Russian hacking forum.
 
-Mipped.com  
-Hacking forum, blog-like.
+<a href="Mipped.com">Mipped.com</a> - Hacking forum, blog-like.
 
-Seopirat.club  
-Amazing SEO Russian forum.
+<a href="Seopirat.club">Seopirat.club</a> - Amazing SEO Russian forum.
 
-Crackingpro.com  
-Upgrade needed for better use.
+<a href="Crackingpro.com">Crackingpro.com</a> - Upgrade needed for better use.
 
-Altenens.is  
-Good forum, marketplace, hacking.
+<a href="Altenens.is">Altenens.is</a> - Good forum, marketplace, hacking.
 
-Breachforums.st  R
-eally good marketplace.
+<a href="Breachforums.st">Breachforums.st</a> - Really good marketplace.
 
-Migalki.plus  
-acking forum, helpful for beginners.
+<a href="Migalki.plus">Migalki.plus</a> - Hacking forum, helpful for beginners.
 
-Sinister.ly  
-Signature, marketplace, no advertising.
+<a href="Sinister.ly">Sinister.ly</a> - Signature, marketplace, no advertising.
 
-0x00sec.org  
-Good hacking forum.
+<a href="0x00sec.org">0x00sec.org</a> - Good hacking forum.
 
-Shellix.xyz  
-Helps with service advertising.
+<a href="Shellix.xyz">Shellix.xyz</a> - Helps with service advertising.
 
-Vure.cx  
-Good forum, cheap advertising.
+<a href="Vure.cx">Vure.cx</a> - Good forum, cheap advertising.
 
-Codeby.net  
-Best infosec forum.
+<a href="Codeby.net">Codeby.net</a> - Best infosec forum.
 
-Blackhatworld.com  
-Marketing and SEO forum.
+<a href="Blackhatworld.com">Blackhatworld.com</a> - Marketing and SEO forum.
 
-Leakforum.io  
-Small cracking forum, potential.
+<a href="Leakforum.io">Leakforum.io</a> - Small cracking forum, potential.
 
-Soldierx.com  
-Good hacking forum, hard for beginners.
+<a href="Soldierx.com">Soldierx.com</a> - Good hacking forum, hard for beginners.
 
-Craxpro.io 
-Amazing cracking and hacking forum.
+<a href="Craxpro.io">Craxpro.io</a> - Amazing cracking and hacking forum.
 
-Leakx.io  
-Has potential.
+<a href="Leakx.io">Leakx.io</a> - Has potential.
 
-Crackings.one  H
-Has potential.
-
-Leakedbb.com
+<a href="Crackings.one">Crackings.one</a> - Has potential.
