@@ -1,7 +1,5 @@
 <a href="http://nulledbb.com">Nulledbb.com</a> - Good cracking forum.
 
-<a href="http://leakedbb.com">Leakedbb.com</a> - NSFW forum.
-
 <a href="http://fssquad.com">Fssquad.com</a> - Forum with advertisements.
 
 <a href="http://prologic.su">Prologic.su</a> - Helpful Russian hacking forums.
